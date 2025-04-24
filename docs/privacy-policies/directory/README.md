@@ -1,3 +1,0 @@
-# Some Privacy Policy
-
-Policy text.....
